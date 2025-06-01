@@ -19,7 +19,7 @@ I'm a passionate data professional with a love for data analysis. Whether it's c
 
 ## 💬 Let's Connect!
 
-Feel free to reach out if you’d like to collaborate, discuss data, or just say hi! Https://www.linkedin.com/nwancha Ezichi 
+Feel free to reach out if you’d like to collaborate, discuss data, or just say hi!https://www.linkedin.com/in/nwancha-ezichi-78a747312?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 
 ---
