@@ -1,4 +1,4 @@
-# Nwancha-Ezichi-# Hi there, I'm nwancha15 👋
+# Hi there, I'm nwancha15 👋
 
 ## 👨‍💻 About Me
 
